@@ -7,7 +7,7 @@ estou aqui para oque precisar
 podem contar comigo
 
 
-[![]((https://media.tenor.com/SummmRpPsLMAAAAC/qoobee-agapi.gif))
+![](https://media.tenor.com/SummmRpPsLMAAAAC/qoobee-agapi.gif)
 
  
 
